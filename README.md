@@ -9,4 +9,4 @@ I mostly make mods for games or bots on discord.
 - I have a cat
 - I love coffee
 - You won't be safe if you fuck with my coffee
-- # Hobbies: FiveM Roleplay, Camping, making dumb projects
+- Hobbies: FiveM Roleplay, Camping, making dumb projects

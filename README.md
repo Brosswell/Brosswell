@@ -6,7 +6,7 @@ I mostly make mods for games or bots on discord.
 
 
 ## Fun Facts
-- I have a cat
+- I have two cats
 - I love coffee
 - You won't be safe if you fuck with my coffee
 - Hobbies: FiveM Roleplay, Camping, making dumb projects
